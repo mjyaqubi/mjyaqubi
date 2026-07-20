@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name] 👋
+# Hi there, I'm MJ 👋
 
 ### 🚀 Senior Software Engineer | Solutions Architect | Systems & AI Specialist
 
